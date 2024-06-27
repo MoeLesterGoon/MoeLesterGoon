@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on bewegungskrieg
 - 📫 How to reach me dis: .jenkinette
 - 😄 Pronouns: nerf/miner
-- ⚡ Fun fact: I nove liggers
+- ⚡ Fun fact: Alexei Lives, The Regent endures, There is much to be done
 
 <!---
 MoeLesterGoon/MoeLesterGoon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
